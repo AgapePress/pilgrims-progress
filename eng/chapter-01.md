@@ -25,3 +25,43 @@ CHR. Yes, said Christian (for that was his name), because that all which you for
 OBST. What are the things you seek, since you leave all the world to find them?
 
 CHR. I seek an inheritance incorruptible, undefiled, and that fadeth not away; and it is laid up in heaven, and safe there, to be bestowed, at the time appointed, on them that diligently seek it. Read it so, if you will, in my book.
+
+OBST. Nonsense, said Obstinate, away with your book: will you go back with us or no?
+
+CHR. No, not I, said the other, because I have laid my hand to the plough.
+
+OBST. Come, then, neighbor Pliable, let us turn again, and go home without him: there is a company of these crazy-headed coxcombs, that when they take a fancy by the end, are wiser in their own eyes than seven men that can render a reason.
+
+PLI. Then said Pliable, Don't revile; if what good Christian says is true, the things he looks after are better than ours: my heart inclines to go with my neighbor.
+
+OBST. What, more fools still! Be ruled by me, and go back; who knows whither such a brain-sick fellow will lead you? Go back, go back, and be wise.
+
+CHR. Nay, but do thou come with thy neighbor Pliable; there are such things to be had which I spoke of, and many more glories besides. If you believe not me, read here in this book; and for the truth of what is expressed therein, behold, all is confirmed by the blood of Him that made it.
+
+PLI. Well, neighbor Obstinate, said Pliable, I begin to come to a point; I intend to go along with this good man, and to cast in my lot with him; but, my good companion, do you know the way to this desired place?
+
+CHR. I am directed by a man, whose name is Evangelist, to speed me to a little gate that is before us, where we shall receive instructions about the way.
+
+PLI. Come then, good neighbor, let us be going. Then they went both together.
+
+OBST. And I will go back to my place, said Obstinate; I will be no companion of such misled, fantastical fellows.
+
+Now I saw in my dream, that when Obstinate was gone back, Christian and Pliable went talking over the plain; and thus they began their discourse.
+
+CHR. Come, neighbor Pliable, how do you do? I am glad you are persuaded to go along with me. Had even Obstinate himself but felt what I have felt of the powers and terrors of what is yet unseen, he would not thus lightly have given us the back.
+
+PLI. Come, neighbor Christian, since there are none but us two here, tell me now further, what the things are, and how to be enjoyed, whither we are going.
+
+CHR. I can better conceive of them with my mind, than speak of them with my tongue; but yet, since you are desirous to know, I will read of them in my book.
+
+PLI. And do you think that the words of your book are certainly true?
+
+CHR. Yes, verily; for it was made by Him that cannot lie.
+
+PLI. Well, my good companion, glad am I to hear of these things: come on, let us mend our pace.
+
+CHR. I cannot go as fast as I would, by reason of this burden that is on my back.
+
+Now I saw in my dream that just as they had ended this talk, they drew nigh to a very miry slough that was in the midst of the plain: and they being heedless, did both fall suddenly into the bog. The name of the slough was Despond. Here, therefore, they wallowed for a time, being grievously bedaubed with dirt; and Christian, because of the burden that was on his back, began to sink in the mire.
+
+PLI. Then said Pliable, Ah, neighbor Christian, where are you now?
