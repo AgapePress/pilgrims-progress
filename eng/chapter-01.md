@@ -65,3 +65,50 @@ CHR. I cannot go as fast as I would, by reason of this burden that is on my back
 Now I saw in my dream that just as they had ended this talk, they drew nigh to a very miry slough that was in the midst of the plain: and they being heedless, did both fall suddenly into the bog. The name of the slough was Despond. Here, therefore, they wallowed for a time, being grievously bedaubed with dirt; and Christian, because of the burden that was on his back, began to sink in the mire.
 
 PLI. Then said Pliable, Ah, neighbor Christian, where are you now?
+
+CHR. Truly, said Christian, I do not know.
+
+PLI. At this Pliable began to be offended, and angrily said to his fellow, Is this the happiness you have told me all this while of? If we have such ill speed at our first setting out, what may we expect between this and our journey's end? May I get out again with my life, you shall possess the brave country alone for me. And with that he gave a desperate struggle or two, and got out of the mire on that side of the slough which was next to his own house: so away he went, and Christian saw him no more.
+
+Wherefore Christian was left to tumble in the Slough of Despond alone; but still he endeavored to struggle to that side of the slough that was farthest from his own house, and next to the wicket-gate; the which he did, but could not get out because of the burden that was upon his back: but I beheld in my dream, that a man came to him, whose name was Help, and asked him what he did there.
+
+CHR. Sir, said Christian, I was bid to go this way by a man called Evangelist, who directed me also to yonder gate, that I might escape the wrath to come. And as I was going thither, I fell in here.
+
+HELP. But why did not you look for the steps?
+
+CHR. Fear followed me so hard that I fled the next way, and fell in.
+
+HELP. Then said he, Give me thine hand: so he gave him his hand, and he drew him out, and he set him upon sound ground, and bid him go on his way.
+
+Then I stepped to him that plucked him out, and said, "Sir, wherefore, since over this place is the way from the city of Destruction to yonder gate, is it, that this plat is not mended, that poor travellers might go thither with more security?" And he said unto me, "This miry slough is such a place as cannot be mended; it is the descent whither the scum and filth that attends conviction for sin doth continually run, and therefore it is called the Slough of Despond; for still, as the sinner is awakened about his lost condition, there arise in his soul many fears and doubts, and discouraging apprehensions, which all of them get together, and settle in this place: and this is the reason of the badness of this ground.
+
+"It is not the pleasure of the King that this place should remain so bad. His laborers also have, by the direction of his Majesty's surveyors, been for above these sixteen hundred years employed about this patch of ground, if perhaps it might have been mended — yea, and to my knowledge," said he, "there have been swallowed up at least twenty thousand cartloads, yea, millions of wholesome instructions, that have at all seasons been brought from all places of the King's dominions (and they that can tell, say, they are the best materials to make good ground of the place), if so be it might have been mended; but it is the Slough of Despond still, and so will be when they have done what they can.
+
+"True, there are, by the direction of the Lawgiver, certain good and substantial steps, placed even through the very midst of this slough; but at such time as this place doth much spew out its filth, as it doth against change of weather, these steps are hardly seen; or if they be, men, through the dizziness of their heads, step beside, and then they are bemired indeed, notwithstanding the steps be there: but the ground is good when they are once got in at the gate."
+
+Now I saw in my dream, that by this time Pliable was got home to his house. So his neighbors came to visit him; and some of them called him wise man for coming back, and some called him fool for hazarding himself with Christian: others again did mock at his cowardliness, saying, "Surely, since you began to venture, I would not have been so base as to have given out for a few difficulties." So Pliable sat sneaking among them. But at last he got more confidence, and then they all turned their tales, and began to deride poor Christian behind his back. And thus much concerning Pliable.
+
+Now as Christian was walking solitarily by himself, he espied one afar off come crossing over the field to meet him; and their hap was to meet just as they were crossing the way of each other. The gentleman's name that met him was Mr. Worldly Wiseman: he dwelt in the town of Carnal Policy, a very great town, and also hard by from whence Christian came. This man then, meeting with Christian, and having some slight knowledge of him (for Christian's setting forth from the city of Destruction was much noised abroad, not only in the town where he dwelt, but also it began to be the town-talk in some other places) — Mr. Worldly Wiseman, therefore, having some guess of him, by beholding his laborious going, by observing his sighs and groans, and the like, began thus to enter into some talk with Christian.
+
+WORLD. How now, good fellow, whither away after this burdened manner?
+
+CHR. A burdened manner indeed, as ever I think poor creature had! And whereas you ask me, Whither away? I tell you, sir, I am going to yonder wicket-gate before me; for there, as I am informed, I shall be put into a way to be rid of my heavy burden.
+
+WORLD. Hast thou a wife and children?
+
+CHR. Yes; but I am so laden with this burden, that I cannot take that pleasure in them as formerly: methinks I am as if I had none.
+
+WORLD. Wilt thou hearken to me, if I give thee counsel?
+
+CHR. If it be good, I will; for I stand in need of good counsel.
+
+WORLD. I would advise thee, then, that thou with all speed get thyself rid of thy burden; for thou wilt never be settled in thy mind till then: nor canst thou enjoy the benefits of the blessings which God hath bestowed upon thee till then.
+
+CHR. That, is that which I seek for, even to be rid of this heavy burden: but get it off myself I cannot, nor is there any man in our country that can take it off my shoulders; therefore I am going this way, as I told you, that I may be rid of my burden.
+
+WORLD. Who bid thee go this way to be rid of thy burden?
+
+CHR. A man that appeared to me to be a very great and honorable person: his name, as I remember, is Evangelist.
+
+WORLD. I beshrew him for his counsel! There is not a more dangerous and troublesome way in the world than is that into which he hath directed thee; and that thou shalt find, if thou wilt be ruled by his counsel. Thou has met with something, as I perceive, already; for I see the dirt of the Slough of Despond is upon thee: but that slough is the beginning of the sorrows that do attend those that go on in that way. Hear me: I am older than thou: thou art like to meet with, in the way which thou goest, wearisomeness, painfulness, hunger, perils, nakedness, sword, lions, dragons, darkness, and, in a word, death, and what not. These things are certainly true, having been confirmed by many testimonies. And should a man so carelessly cast away 
+himself, by giving heed to a stranger?
