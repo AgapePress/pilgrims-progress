@@ -112,3 +112,53 @@ CHR. A man that appeared to me to be a very great and honorable person: his name
 
 WORLD. I beshrew him for his counsel! There is not a more dangerous and troublesome way in the world than is that into which he hath directed thee; and that thou shalt find, if thou wilt be ruled by his counsel. Thou has met with something, as I perceive, already; for I see the dirt of the Slough of Despond is upon thee: but that slough is the beginning of the sorrows that do attend those that go on in that way. Hear me: I am older than thou: thou art like to meet with, in the way which thou goest, wearisomeness, painfulness, hunger, perils, nakedness, sword, lions, dragons, darkness, and, in a word, death, and what not. These things are certainly true, having been confirmed by many testimonies. And should a man so carelessly cast away 
 himself, by giving heed to a stranger?
+
+CHR. Why, sir, this burden on my back is more terrible to me than all these things which you have mentioned: nay, methinks I care not what I meet with in the way, if so be I can also meet with deliverance from my burden.
+
+WORLD. How earnest thou by thy burden at first?
+
+CHR. By reading this book in my hand.
+
+WORLD. I thought so; and it has happened unto thee as to other weak men, who, meddling with things too high for them, do suddenly fall into thy distractions; which distractions do not only unman men, as thine I perceive have done thee, but they run them upon desperate ventures, to obtain they know not what.
+
+CHR. I know what I would obtain; it is ease from my heavy burden.
+
+WORLD. But why wilt thou seek for ease this way, seeing so many dangers attend it? especially since (hadst thou but patience to hear me) I could direct thee to the obtaining of what thou desirest, without the dangers that thou in this way wilt run thyself into. Yea, and the remedy is at hand. Besides, I will add, that instead of those dangers, thou shalt meet with much safety, friendship, and content.
+
+CHR. I pray open this secret to me.
+
+WORLD. Why, in yonder village (the village is named Morality) there dwells a gentleman whose name is Legality, a very judicious man, and a man of a very good 
+name, that has skill to help men off with such burdens as thine is from their shoulders; yea, to my knowledge, he hath done a great deal of good this way; aye, and 
+besides, he hath skill to cure those that are somewhat crazed in their wits with their burdens. To him, as I said, thou mayest go and be helped presently. His house is not quite a mile from this place; and if he should not be at home himself, he hath a nice young man for his son, whose name is Civility, that can do it (to speak on) as well as the old gentleman himself: there, I say, thou mayest be eased of thy burden; and if thou art not minded to go back to thy former habitation (as indeed I would not wish thee), thou mayest send for thy wife and children to this village, where there are houses now standing empty, one of which thou mayest have at a reasonable rate: provision is there also cheap and good; and that which will make thy life the more happy is, to be sure there thou shalt live by honest neighbors, in credit and good fashion.
+
+Now was Christian somewhat at a stand; but presently he concluded, If this be true which this gentleman hath said, my wisest course is to take his advice; and with that he thus further spake.
+
+CHR. Sir, which is my way to this honest man's house?
+
+WORLD. Do you see yonder high hill?
+
+CHR. Yes, very well.
+
+WORLD. By that hill you must go, and the first house you come at is his.
+
+So Christian turned out of his way to go to Mr. Legality's house for help: but, behold, when he was got now hard by the hill, it seemed so high, and also that side of it that was next the wayside did hang so much over, that Christian was afraid to venture further, lest the hill should fall on his head; wherefore there he stood still, and knew not what to do. Also his burden now seemed heavier to him than while he was in his way. There came also flashes of fire out of the hill, that made Christian afraid that he should be burnt; here therefore he did sweat and quake for fear. And now he began to be sorry that he had taken Mr. Worldly Wiseman's counsel; and with that he saw Evangelist coming to meet him, at the sight also of whom he began to blush with shame. So Evangelist drew nearer and nearer; and coming up to him, he looked upon him, with a severe and dreadful countenance, and thus began to reason with Christian.
+
+EVAN. What doest thou here, Christian? said he: at which words Christian knew not what to answer; wherefore at present he stood speechless before him. Then said Evangelist further, Art not thou the man that I found crying without the walls of the city of Destruction?
+
+CHR. Yes, dear sir, I am the man.
+
+EVAN. Did not I direct thee the way to the little wicket-gate.
+
+CHR. Yes, dear sir, said Christian.
+
+EVAN. How is it, then, thou art so quickly turned aside? For thou art now out of thy way.
+
+CHR. I met with a gentleman so soon as I had got over the Slough of Despond, who persuaded me that I might, in the village before me, find a man that could take off my burden.
+
+EVAN. What was he?
+
+CHR. He looked like a gentleman, and talked much to me, and got me at last to yield: so I came hither: and when I beheld this hill, and how it hangs over the way, I suddenly made a stand, lest it should fall on my head.
+
+EVAN. What said that gentleman to you?
+
+CHR. Why, he asked me whither I was going; and I told him.
