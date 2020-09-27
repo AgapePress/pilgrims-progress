@@ -162,3 +162,29 @@ CHR. He looked like a gentleman, and talked much to me, and got me at last to yi
 EVAN. What said that gentleman to you?
 
 CHR. Why, he asked me whither I was going; and I told him.
+
+EVAN. And what said he then?
+
+CHR. He asked me if I had a family; and I told him. But, said I, I am so laden with the burden that is on my back, that I cannot take pleasure in them as formerly.
+
+EVAN. And what said he then?
+
+CHR. He bid me with speed get rid of my burden; and I told him it was ease that I sought. And, said I, I am therefore going to yonder gate, to receive further direction how I may get to the place of deliverance. So he said that he would show me a better way, and short, not so attended with difficulties as the way, sir, that you set me in; which way, said he, will direct you to a gentleman's house that hath skill to take off these burdens: so I believed him, and turned out of that way into this, if haply I might be soon eased of my burden. But when I came to this place, and beheld things as they are, I stopped, for fear (as I said) of danger: but I now know not what to do.
+
+EVAN. Then said Evangelist, Stand still a little, that I show thee the words of God. So he stood trembling. Then said Evangelist, "See that ye refuse not Him that speaketh; for if they escaped not who refused him that spake on earth, much more shall not we escape, if we turn away from Him that speaketh from heaven."
+
+Then Christian fell down at his feet as dead, crying, Woe is me, for I am undone! At the sight of which Evangelist caught him by the right hand, saying, "All manner of sin and blasphemies shall be forgiven unto men." "Be not faithless, but believing." Then did Christian again a little revive, and stood up trembling, as at first, before Evangelist.
+
+Then Evangelist proceeded, saying, Give more earnest heed to the things that I shall tell thee. I will now show thee who it was that deluded thee, and who it was also to whom he sent thee. The man that met thee is one Worldly Wiseman, and rightly is he so called; partly because he knoweth only the doctrine of this world (therefore he always goes to the town of Morality to church); and because he is of this worldly temper, therefore he seeketh to pervert my ways, though right. Now there are three things thou must utterly abhor.
+
+1. His turning thee out of the way.
+2. His laboring to render the cross odious to thee.
+3. And his setting thy feet in that way that leadeth unto death.
+
+This Legality, therefore, is not able to set thee free from thy burden. No man was as yet ever rid of his burden by him; no, nor ever is like to be: ye can not be justified by the works of the law; for by the deeds of the law no man living can be rid of his burden. Therefore Mr. Worldly Wiseman is an alien, and Mr. Legality is a cheat; and for his son Civility, notwithstanding his simpering looks, he is but a hypocrite, and can not help thee. Believe me, there is nothing in all this noise that thou hast heard of these foolish men, but a design to beguile thee of thy salvation, by turning thee from the way in which I set thee. After this, Evangelist called aloud to the heavens for confirmation of what he had said; and with that there came words and fire out of the mountain under which poor Christian stood, which made the hair of his flesh stand up. The words were pronounced; "As many as are of the works of the law, are under the curse; for it is written, Cursed is every one that continueth not in all things which are written in the book of the law to do them."
+
+Now Christian looked for nothing but death, and began to cry out lamentably, even cursing the time in which he met with Mr. Worldly Wiseman; still calling himself a thousand fools for hearkening to his counsel. He was also greatly ashamed to think that this gentleman's arguments, flowing only from the flesh, should have the prevalency with him so far as to cause him to forsake the right way. This done, he applied himself again to Evangelist in words and sense as follows.
+
+CHR. Sir, what think you? Is there any hope? May I now go back, and go up to the wicket-gate? Shall I not be abandoned for this, and sent back from thence ashamed? I am sorry I have hearkened to this man's counsel; but may my sin be forgiven?
+
+EVAN. Then said Evangelist to him, Thy sin is very great, for by it thou hast committed two evils: thou hast forsaken the way that is good, to tread in forbidden paths. Yet will the man at the gate receive thee, for he has good-will for men; only, said he, take heed that thou turn not aside again, lest thou "perish from the way, when his wrath is kindled but a little."
