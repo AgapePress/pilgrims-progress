@@ -116,3 +116,35 @@ Now, said Christian, let me go hence. Nay, stay, said the Interpreter, till I ha
 Now the man, to look on, seemed very sad; he sat with his eyes looking down to the ground, his hands folded together, and he sighed as if he would break his heart. Then said Christian, What means this? At which the Interpreter bid him talk with the man.
 
 Then said Christian to the man, What art thou? The man answered, I am what I was not once.
+
+CHR. What wast thou once?
+
+MAN. The man said, I was once a fair and flourishing professor of religion, both in mine own eyes, and also in the eyes of others: I once was, as I thought, fair for the celestial city, and had then even joy at the thoughts that I should get thither.
+
+CHR. Well, but what art thou now?
+
+MAN. I am now a man of despair, and am shut up in it, as in this iron cage. I cannot get out; oh, now I cannot!
+
+CHR. But how earnest thou into this condition?
+
+MAN. I left off to watch and be sober; I gave way to all my desires; I sinned against the light of the world, and the goodness of God; I have grieved the Spirit, and he is gone; I tempted the Evil One, and he is come to me; I have provoked God to anger, and he has left me: I have so hardened my heart, that I cannot repent.
+
+INTER. Then said the Interpreter to Christian, Let this man's misery be remembered by thee, and be an everlasting caution to thee.
+
+CHR. Well, said Christian, this is fearful! God help me to watch and to be sober, and to pray that I may shun the cause of this man's misery. Sir, is it not time for me to go on my way now?
+
+INTER. Tarry till I show thee one thing more, and then thou shalt go on thy way.
+
+So he took Christian by the hand again and led him into a chamber where there was one rising out of bed; and as he put on his raiment, he shook and trembled. Then said Christian, Why doth this man thus tremble? The Interpreter then bid him tell to Christian the reason of his so doing.
+
+So he began, and said, "This night, as I was in my sleep, I dreamed, and behold the heavens grew exceeding black; also it thundered and lightened in most fearful wise, that it put me into an agony. So I looked up in my dream, and saw the clouds move at an unusual rate; upon which I heard a great sound of a trumpet, and saw also a man sitting upon a cloud, attended with the thousands of heaven: they were all in flaming fire; also the heavens were in a burning flame. I heard then a voice, saying, 'Arise, ye dead, and come to judgment.' And with that the rocks rent, the graves opened, and the dead that were therein came forth: some of them were exceeding glad, and looked upward; and some sought to hide themselves under the mountains."
+
+CHR. But what was it that made you so afraid of this sight?
+
+MAN. Why, I thought that the day of judgment was come, and that I was not ready for it: but this frightened me most, that the angels gathered up several, and left me behind. My conscience, too, afflicted me; and, as I thought, the Judge had always his eye upon me, showing indignation in his countenance.
+
+Then said the Interpreter to Christian, "Hast thou considered all these things?"
+
+CHR. Yes, and they put me in hope and fear.
+
+INTER. Well, keep all things so in thy mind, that they may be as a goad in thy sides, to prick thee forward in the way thou must go. Then Christian began to gird up his loins, and to address himself to his journey. Then said the Interpreter, "The Comforter be always with thee, good Christian, to guide thee in the way that leads to the city." So Christian went on his way.
