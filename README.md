@@ -5,6 +5,7 @@
 ### Table of Contents
 
 1. [The First Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-01.md)
+2. [The Second Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-02.md)
 
 ## Licensing
 
