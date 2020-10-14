@@ -14,3 +14,20 @@ Christian then seeing them lie in this case, went to them, if peradventure he mi
 Yet he was troubled to think that men in that danger should so little esteem the kindness of him that so freely offered to help them, both by awakening of them, counselling of them, and proffering to help them off with their irons. And as he was troubled thereabout, he espied two men coming tumbling over the wall, on the left hand of the narrow way; and they made up apace to him. The name of the one was Formalist, and the name of the other Hypocrisy. So, as I said, they drew up unto him, who thus entered with them into discourse.
 
 CHR. Gentlemen, whence came you, and whither do you go?
+
+FORM. AND HYP. We were born in the land of Vainglory, and are going, for praise, to Mount Zion.
+
+CHR. Why came you not in at the gate which standeth at the beginning of the way? Know ye not that it is written, that "he that cometh not in by the door, but climbeth up some other way, the same is a thief and a robber"?
+
+FORM. AND HYP. They said, that to go to the gate for entrance was by all their countrymen counted too far about; and that therefore their usual way was to make a short cut of it, and to climb over the wall, as they had done.
+
+CHR. But will it not be counted a trespass against the Lord of the city whither we are bound, thus to violate his revealed will?
+
+FORM. AND HYP. They told him, that as for that, he needed not to trouble his head thereabout; for what they did they had custom for, and could produce, if need were, testimony that would witness it for more than a thousand years.
+
+CHR. But, said Christian, will you stand a trial at law?
+
+FORM. AND HYP. They told him, that custom, it being of so long standing as above a thousand years, would doubtless now be admitted as a thing lawful by an impartial judge: and besides, said they, if we get into the way, what matter is it which way we get in? If we are in, we are in: thou art but in the way, who, as we perceive, came in at the gate; and we also are in the way, that came tumbling over the wall: wherein 
+now is thy condition better than ours?
+
+CHR. I walk by the rule of my Master: you walk by the rude working of your fancies. You are counted thieves already by the Lord of the way: therefore I think you will not be found true men at the end of the way. You come in by yourselves without his direction, and shall go out by yourselves without his mercy.
