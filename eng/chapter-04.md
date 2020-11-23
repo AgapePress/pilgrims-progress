@@ -1,0 +1,3 @@
+# 4 The Fourth Stage
+
+Then he began to go forward; but Discretion, Piety, Charity, and Prudence would accompany him down to the foot of the hill. So they went on together, repeating their former discourses, till they came to go down the hill. Then said Christian, As it was difficult coming up, so far as I can see, it is dangerous going down. Yes, said Prudence, so it is; for it is a hard matter for a man to go down into the valley of Humiliation, as thou art now, and to meet with no fall or mishap by the way; therefore, said she, we are come out to accompany thee down the hill. So he began to go down the hill, but very warily; yet he caught a slip or two.

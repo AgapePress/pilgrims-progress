@@ -7,6 +7,7 @@
 1. [The First Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-01.md)
 2. [The Second Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-02.md)
 3. [The Third Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-03.md)
+4. [The Fourth Stage](https://github.com/AgapePress/pilgrims-progress/blob/master/eng/chapter-04.md)
 
 ## Online Books
 
