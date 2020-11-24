@@ -1,3 +1,7 @@
 # 4 The Fourth Stage
 
 Then he began to go forward; but Discretion, Piety, Charity, and Prudence would accompany him down to the foot of the hill. So they went on together, repeating their former discourses, till they came to go down the hill. Then said Christian, As it was difficult coming up, so far as I can see, it is dangerous going down. Yes, said Prudence, so it is; for it is a hard matter for a man to go down into the valley of Humiliation, as thou art now, and to meet with no fall or mishap by the way; therefore, said she, we are come out to accompany thee down the hill. So he began to go down the hill, but very warily; yet he caught a slip or two.
+
+Then I saw in my dream, that these good companions, when Christian was got down to the bottom of the hill, gave him a loaf of bread, a bottle of wine, and a cluster of raisins; and then he went on his way.
+
+But now, in this valley of Humiliation, poor Christian was hard put to it; for he had gone but a little way before he espied a foul fiend coming over the field to meet him: his name is Apollyon. Then did Christian begin to be afraid, and to cast in his mind whether to go back or to stand his ground. But he considered again, that he had no armor for his back, and therefore thought that to turn the back to him might give him greater advantage with ease to pierce him with his darts; therefore he resolved to venture and stand his ground: for, thought he, had I no more in mine eye than the saving of my life, it would be the best way to stand.
