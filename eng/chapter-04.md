@@ -54,3 +54,7 @@ that gave him a deadly thrust, which made him give back, as one that had receive
 spread forth his dragon wings, and sped him away, that Christian saw him no more.
 
 In this combat no man can imagine, unless he had seen and heard, as I did, what yelling and hideous roaring Apollyon made all the time of the fight; he spake like a dragon: and on the other side, what sighs and groans burst from Christian's heart. I never saw him all the while give so much as one pleasant look till he perceived he had wounded Apollyon with his two-edged sword; then, indeed, he did smile, and look upward! But it was the dreadfullest sight that ever I saw.
+
+So when the battle was over, Christian said, I will here give thanks to Him that hath delivered me out of the mouth of the lion, to Him that did help me against Apollyon.
+
+Then there came to him a hand with some of the leaves of the tree of life, the which Christian took and applied to the wounds that he had received in the battle, and was healed immediately. He also sat down in that place to eat bread, and to drink of the bottle that was given him a little before: so, being refreshed, he addressed himself to his journey with his sword drawn in his hand; for he said, I know not but some other enemy may be at hand. But he met with no other affront from Apollyon quite through this valley.
