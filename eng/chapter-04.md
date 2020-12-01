@@ -58,3 +58,9 @@ In this combat no man can imagine, unless he had seen and heard, as I did, what 
 So when the battle was over, Christian said, I will here give thanks to Him that hath delivered me out of the mouth of the lion, to Him that did help me against Apollyon.
 
 Then there came to him a hand with some of the leaves of the tree of life, the which Christian took and applied to the wounds that he had received in the battle, and was healed immediately. He also sat down in that place to eat bread, and to drink of the bottle that was given him a little before: so, being refreshed, he addressed himself to his journey with his sword drawn in his hand; for he said, I know not but some other enemy may be at hand. But he met with no other affront from Apollyon quite through this valley.
+
+Now at the end of this valley was another, called the Valley of the Shadow of Death; and Christian must needs go through it, because the way to the Celestial City lay through the midst of it. Now, this valley is a very solitary place. The prophet Jeremiah thus describes it: "A wilderness, a land of deserts and pits, a land of drought, and of the Shadow of Death, a land that no man" (but a Christian) "passeth through, and where no man dwelt."
+
+Now here Christian was worse put to it than in his light with Apollyon, as by the sequel you shall see.
+
+I saw then in my dream, that when Christian was got to the borders of the Shadow of Death, there met him two men, children of them that brought up an evil report of the good land, making haste to go back; to whom Christian spake as follows.
