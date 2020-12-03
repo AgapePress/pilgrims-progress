@@ -64,3 +64,25 @@ Now at the end of this valley was another, called the Valley of the Shadow of De
 Now here Christian was worse put to it than in his light with Apollyon, as by the sequel you shall see.
 
 I saw then in my dream, that when Christian was got to the borders of the Shadow of Death, there met him two men, children of them that brought up an evil report of the good land, making haste to go back; to whom Christian spake as follows.
+
+CHR. Whither are you going?
+
+MEN. They said, Back, back; and we would have you do so too, if either life or peace is prized by you.
+
+CHR. Why, what's the matter? said Christian.
+
+MEN. Matter! said they; we were going that way as you are going, and went as far as we durst; and indeed we were almost past coming back; for had we gone a little farther, we had not been here to bring the news to thee.
+
+CHR. But what have you met with? said Christian.
+
+MEN. Why, we were almost in the Valley of the Shadow of Death, but that by good hap we looked before us, and saw the danger before we came to it.
+
+CHR. But what have you seen? said Christian.
+
+MEN. Seen? why, the valley itself, which is as dark as pitch: we also saw there the hobgoblins, monsters, and dragons of the pit: we heard also in that valley a continual howling and yelling, as of people under unutterable misery, who there sat bound in affliction and irons: and over that valley hang the discouraging clouds of confusion: Death also doth always spread his wings over it. In a word, it is every whit dreadful, being utterly without order.
+
+CHR. Then, said Christian, I perceive not yet, by what you have said, but that this is my way to the desired haven.
+
+MEN. Be it thy way; we will not choose it for ours.
+
+So they parted, and Christian went on his way, but still with his sword drawn in his hand, for fear lest he should be assaulted.
