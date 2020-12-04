@@ -86,3 +86,5 @@ CHR. Then, said Christian, I perceive not yet, by what you have said, but that t
 MEN. Be it thy way; we will not choose it for ours.
 
 So they parted, and Christian went on his way, but still with his sword drawn in his hand, for fear lest he should be assaulted.
+
+I saw then in my dream, so far as this valley reached, there was on the right hand a very deep ditch; that ditch is it into which the blind have led the blind in all ages, and have both there miserably perished. Again, behold, on the left hand there was a very dangerous quagmire, into which, if even a good man falls, he finds no bottom for his foot to stand on; into that quagmire King David once did fall, and had no doubt therein been smothered, had not He that is able plucked him out.
