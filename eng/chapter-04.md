@@ -88,3 +88,17 @@ MEN. Be it thy way; we will not choose it for ours.
 So they parted, and Christian went on his way, but still with his sword drawn in his hand, for fear lest he should be assaulted.
 
 I saw then in my dream, so far as this valley reached, there was on the right hand a very deep ditch; that ditch is it into which the blind have led the blind in all ages, and have both there miserably perished. Again, behold, on the left hand there was a very dangerous quagmire, into which, if even a good man falls, he finds no bottom for his foot to stand on; into that quagmire King David once did fall, and had no doubt therein been smothered, had not He that is able plucked him out.
+
+The pathway was here also exceeding narrow, and therefore good Christian was the more put to it; for when he sought, in the dark, to shun the ditch on the one hand, he was ready to tip over into the mire on the other; also, when he sought to escape the mire, without great carefulness he would be ready to fall into the ditch. Thus he went on, and I heard him here sigh bitterly; for besides the danger mentioned above, the pathway was here so dark, that ofttimes when he lifted up his foot to go forward, he knew not where or upon what he should set it next.
+
+When Christian had travelled in this disconsolate condition some considerable time, he thought he heard the voice of a man, as going before him, saying, Though I walk through the Valley of the Shadow of Death, I will fear no evil, for thou art with me.
+
+Then was he was glad, and that for these reasons:
+
+First, Because he gathered from thence, that some who feared God were in this valley as well as himself.
+
+Secondly, For that he perceived God was with them, though in that dark and dismal state. And why not, thought he, with me, though by reason of the difficulty that attends this place, I can not perceive it.
+
+Thirdly, For that he hoped (could he overtake them) to have company by and by. So he went on, and called to him that was before; but he knew not what to answer, for that he also thought himself to be alone. And by and by the day broke: then said Christian, "He hath turned the shadow of death into the morning."
+
+Now morning being come, he looked back, not out of desire to return, but to see, by the light of the day, what hazards he had gone through in the dark. So he saw more perfectly the ditch that was on the one hand, and the quagmire that was on the other; also, how narrow the way was which led betwixt them both. Also, now he saw the hobgoblins, and monsters, and dragons of the pit, but all afar off; for after break of day they came not nigh; yet they were discovered to him, according to that which is written, "He discovereth deep things out of darkness, and bringeth out to light the shadow of death."
