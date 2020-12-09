@@ -21,3 +21,19 @@ FAITH. Yes, it was for awhile in everybody's mouth.
 CHR. What, and did no more of them but you come out to escape the danger?
 
 FAITH. Though there was, as I said, a great talk thereabout, yet I do not think they did firmly believe it; for, in the heat of the discourse, I heard some of them deridingly speak of you and of your desperate journey, for so they called this your pilgrimage. But I did believe, and do still, that in the end our city will be destroyed; and therefore I have made my escape.
+
+CHR. Did you hear no talk of neighbor Pliable?
+
+FAITH. Yes, Christian, I heard that he followed you till he came to the Slough of Despond, where, as some said, he fell in; but he would not be known to have so done: but I am sure he was completely bedaubed with that kind of dirt.
+
+CHR. And what said the neighbors to him?
+
+FAITH. He hath, since his going back, been held greatly in derision, and that among all sorts of people: some do mock and despise him, and scarce will any set him to work. He is now seven times worse than if he had never gone out of the city.
+
+CHR. But why should they be so set against him, since they also despise the way that he forsook?
+
+FAITH. Oh, they say, Hang him; he is a turncoat: he was not true to his profession! I think God has stirred up even His enemies to hiss at him, and make him a proverb, because he hath forsaken the way.
+
+CHR. Had you no talk with him before you came out?
+
+FAITH. I met him once in the streets, but he looked away toward the other side, as one ashamed of what he had done; so I spake not to him.
