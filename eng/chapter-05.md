@@ -37,3 +37,19 @@ FAITH. Oh, they say, Hang him; he is a turncoat: he was not true to his professi
 CHR. Had you no talk with him before you came out?
 
 FAITH. I met him once in the streets, but he looked away toward the other side, as one ashamed of what he had done; so I spake not to him.
+
+CHR. Well, at my first setting out I had hopes of that man; but now I fear he will perish in the overthrow of the city.
+
+FAITH. These are my fears of him, too; but who can hinder that which will be?
+
+CHR. Well, neighbor Faithful, said Christian, let us leave him, and talk of things that more immediately concern ourselves. Tell me now what you have met with in the way as you came; for I know you have met with some things, or else it may be writ for a wonder.
+
+FAITH. I escaped the slough that I perceived you fell into, and got up to the gate without that danger; only I met with one whose name was Wanton, who had like to have done me mischief.
+
+CHR. It was well you escaped her net: Joseph was hard put to it by her, and he escaped as you did; but it had like to have cost him his life. But what did she do to you?
+
+FAITH. You cannot think (but that you know something) what a flattering tongue she had; she lay at me hard to turn aside with her, promising me all manner of content.
+
+CHR. Did you meet with no other assault as you came?
+
+FAITH. When I came to the foot of the hill called Difficulty, I met with a very aged man, who asked me what I was, and whither bound. I told him that I was a pilgrim, going to the Celestial City. Then said the old man, Thou lookest like an honest fellow; wilt thou be content to dwell with me for the wages that I shall give thee? Then I asked his name, and where he dwelt. He said his name was Adam the First, and that he dwelt in the town of Deceit. I asked him then what was his work, and what the wages that he would give. He told me that his work was *many delights;* and his wages, that I should be his heir at last. I further asked him, what house he kept, and what other servants he had. So he told me that his house was maintained with all the dainties of the world, and that he had many servants. Then I asked, how long time he would have me live with him; and he told me, as long as he lived himself.
