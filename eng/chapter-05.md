@@ -53,3 +53,25 @@ FAITH. You cannot think (but that you know something) what a flattering tongue s
 CHR. Did you meet with no other assault as you came?
 
 FAITH. When I came to the foot of the hill called Difficulty, I met with a very aged man, who asked me what I was, and whither bound. I told him that I was a pilgrim, going to the Celestial City. Then said the old man, Thou lookest like an honest fellow; wilt thou be content to dwell with me for the wages that I shall give thee? Then I asked his name, and where he dwelt. He said his name was Adam the First, and that he dwelt in the town of Deceit. I asked him then what was his work, and what the wages that he would give. He told me that his work was *many delights;* and his wages, that I should be his heir at last. I further asked him, what house he kept, and what other servants he had. So he told me that his house was maintained with all the dainties of the world, and that he had many servants. Then I asked, how long time he would have me live with him; and he told me, as long as he lived himself.
+
+CHR. Well, and what conclusions came the old man and you to at last?
+
+FAITH. Why, at first I found myself somewhat inclinable to go with the man, for I thought he spoke very fair; but looking in his forehead, as I talked with him, I saw there written, "Put off the old man with his deeds."
+
+CHR. And how then?
+
+FAITH. Then it came burning hot into my mind, that, whatever he said, and however he flattered, when he got me home to his house he would sell me for a slave. So I bid him forbear to talk, for I would not come near the door of his house. Then he reviled me, and told me that he would send such a one after me that should make my way bitter to my soul. So I turned to go away from him; but just as I turned myself to go thence, I felt him take hold of my flesh, and give me such a deadly twitch back, that I thought he had pulled part of me after himself: this made me cry, "Oh, wretched man!" So I went on my way up the hill.
+
+Now, when I got about half the way up, I looked behind me and saw one coming after me, swift as the wind; so he overtook me just about the place where the bench stands.
+
+Just there, said Christian, did I sit down to rest me; but, being overcome with sleep, I there lost this roll out of my bosom.
+
+FAITH. But, good brother, hear me out. So soon as the man overtook me, it was but a word and a blow; for down he knocked me and laid me for dead. But when I was a little come to myself again, I asked him wherefore he served me so. He said because of my secret inclining to Adam the First. And with that he struck me another deadly blow on the breast, and beat me down backward; so I lay at his feet as dead as before. So when I came to myself again, I cried, have mercy; but he said, I know not how to show mercy; and with that he knocked me down again. He had doubtless made an end of me, but that One came by and bid him forbear.
+
+CHR. Who was that that bid him forbear?
+
+FAITH. I did not know Him at first; but as He went by, I perceived the holes in His hands and His side; then I concluded that He was our Lord. So I went up the hill.
+
+CHR. That man that overtook you was Moses. He spareth none; neither knoweth he how to show mercy to those that transgress his law.
+
+FAITH. I know it very well; it was not the first time that he has met with me. 'Twas he that came to me when I dwelt securely at home, and that told me that he would burn my house over my head if I staid there.
