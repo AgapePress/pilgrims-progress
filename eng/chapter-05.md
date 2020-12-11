@@ -75,3 +75,16 @@ FAITH. I did not know Him at first; but as He went by, I perceived the holes in 
 CHR. That man that overtook you was Moses. He spareth none; neither knoweth he how to show mercy to those that transgress his law.
 
 FAITH. I know it very well; it was not the first time that he has met with me. 'Twas he that came to me when I dwelt securely at home, and that told me that he would burn my house over my head if I staid there.
+
+CHR. But did you not see the house that stood there on the top of the hill, on the side of which Moses met you?
+
+FAITH. Yes, and the lions too, before I came at it. But, for the lions, I think they were asleep, for it was about noon; and because I had so much of the day before me, I passed by the porter and came down the hill.
+
+CHR. He told me, indeed, that he saw you go by, but I wish that you had called at the house, for they would have showed you so many rarities that you would scarce have forgot them to the day of your death. But pray tell me, did you meet anybody in the Valley of Humility?
+
+FAITH. Yes, I met with one Discontent, who would willingly have persuaded me to go back again with him: his reason was, because the valley was altogether without honor. He told me, moreover, that to go there was the way to disoblige all my friends, as Pride, Arrogancy, Self-Conceit, Worldly Glory, with others, who he knew, as he said, would be very much offended if I made such a fool of myself as to wade through this 
+valley.
+
+CHR. Well, and how did you answer him?
+
+FAITH. I told him, that although all these that he named might claim a kindred to me, and that rightly (for indeed they were my relations, according to the flesh), yet since I became a pilgrim they have disowned me, and I also have rejected them; and therefore they were to me now no more than if they had never been of my lineage. I told him, moreover, that as to this valley, he had quite misrepresented the thing; for before honor is humility, and a haughty spirit before a fall. Therefore, said I, I had rather go through this valley to the honor that was so accounted by the wisest, than choose that which he esteemed most worthy of our affections.
