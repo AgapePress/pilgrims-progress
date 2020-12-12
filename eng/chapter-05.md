@@ -88,3 +88,15 @@ valley.
 CHR. Well, and how did you answer him?
 
 FAITH. I told him, that although all these that he named might claim a kindred to me, and that rightly (for indeed they were my relations, according to the flesh), yet since I became a pilgrim they have disowned me, and I also have rejected them; and therefore they were to me now no more than if they had never been of my lineage. I told him, moreover, that as to this valley, he had quite misrepresented the thing; for before honor is humility, and a haughty spirit before a fall. Therefore, said I, I had rather go through this valley to the honor that was so accounted by the wisest, than choose that which he esteemed most worthy of our affections.
+
+CHR. Met you with nothing else in that valley?
+
+FAITH. Yes, I met with Shame; but of all the men that I met with on my pilgrimage, he, I think, bears the wrong name. The others would be said nay, after a little argumentation, and somewhat else; but this bold-faced Shame would never have done.
+
+CHR. Why, what did he say to you?
+
+Faith. What? Why, he objected against religion itself. He said it was a pitiful, low, sneaking business for a man to mind religion. He said that a tender conscience was an unmanly thing; and that for a man to watch over his words and ways, so as to tie up himself from that blustering liberty that the brave spirits of the times accustom themselves unto, would make him the ridicule of the times. He objected also, that but a few of the mighty, rich, or wise, were ever of my opinion; nor any of them neither, before they were persuaded to be fools, and to venture the loss of all for nobody knows what. He, moreover, objected to the base and low estate and condition of those that were chiefly the pilgrims of the times in which they lived; also their ignorance and want of understanding in all natural knowledge. Yea, he did hold me to it at that rate also, about a great many more things than here I relate; as, that it was a shame to sit whining and mourning under a sermon, and a shame to come sighing and groaning home; that it was a shame to ask my neighbor forgiveness for petty faults, or to make restitution where I have taken from any. He said also, that religion made a man grow strange to the great, because of a few vices, which he called by finer names, and made him own and respect the base, because of the same religious fraternity: and is not this, said he, a shame?
+
+CHR. And what did you say to him?
+
+FAITH. Say? I could not tell what to say at first. Yea, he put me so to it, that my blood came up in my face; even this Shame fetched it up, and had almost beat me quite off; but at last I began to consider that that which is highly esteemed among men, is had in abomination with God. And I thought again, this Shame tells me what men are; but he tells me nothing what God or the word of God is. And I thought, moreover, that at last we shall not be judged according to the insolent spirits of the world, but according to the wisdom and the law of the Highest. Therefore, thought I, what God says is indeed best, though all the men in the world are against it.
