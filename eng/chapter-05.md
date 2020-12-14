@@ -126,3 +126,15 @@ TALK. With a very good will, will I be your companion.
 FAITH. Come on, then, and let us go together, and let us spend our time in discoursing of things that are profitable.
 
 TALK. To talk of things that are good, to me is very acceptable, with you or with any other; and I am glad that I have met with those that incline to so good a work; for to speak the truth, there are but few who care thus to spend their time as they are in their travels, but choose much rather to be speaking of things to no profit; and this hath been a trouble to me.
+
+FAITH. That is, indeed, a thing to be lamented; for what thing so worthy of the use of the tongue and mouth of men on earth, as are the things of the God of heaven?
+
+TALK. I like you wonderful well, for your sayings are full of conviction; and I will add, What thing is so pleasant, and what so profitable, as to talk of the things of God? What things so pleasant? that is, if a man hath any delight in things that are wonderful. For instance, if a man doth delight to talk of the history, or the mystery of things; or if a man doth love to talk of miracles, wonders, or signs, where shall he find things recorded so delightful, and so sweetly penned, as in the Holy Scripture?
+
+FAITH. Well, then, said Faithful, what is that one thing that we shall at this time found our discourse upon?
+
+TALK. What you will. I will talk of things heavenly, or things earthly; things moral, or things evangelical; things sacred, or things profane; things past, or things to come; things foreign, or things at home; things more essential, or things circumstantial: provided that all be done to our profit.
+
+Now did Faithful begin to wonder; and stepping to Christian (for he walked all this while by himself), he said to him, but softly, What a fine companion have we got! Surely, this man will make a very excellent pilgrim.
+
+At this Christian modestly smiled, and said, This man, with whom you are so taken, will beguile with this tongue of his twenty of them that know him not.
