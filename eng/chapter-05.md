@@ -100,3 +100,29 @@ Faith. What? Why, he objected against religion itself. He said it was a pitiful,
 CHR. And what did you say to him?
 
 FAITH. Say? I could not tell what to say at first. Yea, he put me so to it, that my blood came up in my face; even this Shame fetched it up, and had almost beat me quite off; but at last I began to consider that that which is highly esteemed among men, is had in abomination with God. And I thought again, this Shame tells me what men are; but he tells me nothing what God or the word of God is. And I thought, moreover, that at last we shall not be judged according to the insolent spirits of the world, but according to the wisdom and the law of the Highest. Therefore, thought I, what God says is indeed best, though all the men in the world are against it.
+
+CHR. I am glad, my brother, that thou didst withstand this villain so bravely; for of all, as thou sayest, I think he has the wrong name: for he is so bold as to follow us in the streets, and to attempt to put us to shame before all men: that is, to make us ashamed of that which is good. But if he was not himself audacious, he would never attempt to do as he does. But let us still resist him; for, notwithstanding all his 
+bravadoes, he promoteth the fool, and none else. "The wise shall inherit glory," said Solomon; "but shame shall be the promotion of fools."
+
+FAITH. I think we must cry to Him for help against Shame, that would have us to be valiant for truth upon the earth.
+
+CHR. You say true; but did you meet with nobody else in that valley?
+
+FAITH. No, not I; for I had sunshine all the rest of the way through that, and also through the Valley of the Shadow of Death.
+
+CHR. 'Twas well for you; I am sure it fared far otherwise with me. I had for a long season, as soon almost as I entered into that valley, a dreadful combat with that foul fiend Apollyon; yea, I thought verily he would have killed me, especially when he got me down, and crushed me under him, as if he would have crushed me to pieces; for, as he threw me, my sword flew out of my hand: nay, he told me he was sure of me; but I cried unto God, and he heard me, and delivered me out of all my troubles. Then I entered into the Valley of the Shadow of Death, and had no light for almost half the way through it. I thought over and over I should have been killed there; but at 
+last day brake, and the sun rose, and I went through that which was behind with far more ease and quiet.
+
+Moreover, I saw in my dream, that as they went on, Faithful, as he chanced to look on one side, saw a man whose name was Talkative, walking at a distance beside them; for in this place there was room enough for them all to walk. He was a tall man, and something more comely at a distance than at hand. To this man Faithful addressed himself in this manner.
+
+FAITH. Friend, whither away? Are you going to the heavenly country?
+
+TALK. I am going to the same place.
+
+FAITH. That is well; then I hope we may have your good company?
+
+TALK. With a very good will, will I be your companion.
+
+FAITH. Come on, then, and let us go together, and let us spend our time in discoursing of things that are profitable.
+
+TALK. To talk of things that are good, to me is very acceptable, with you or with any other; and I am glad that I have met with those that incline to so good a work; for to speak the truth, there are but few who care thus to spend their time as they are in their travels, but choose much rather to be speaking of things to no profit; and this hath been a trouble to me.
