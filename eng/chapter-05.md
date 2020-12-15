@@ -138,3 +138,27 @@ TALK. What you will. I will talk of things heavenly, or things earthly; things m
 Now did Faithful begin to wonder; and stepping to Christian (for he walked all this while by himself), he said to him, but softly, What a fine companion have we got! Surely, this man will make a very excellent pilgrim.
 
 At this Christian modestly smiled, and said, This man, with whom you are so taken, will beguile with this tongue of his twenty of them that know him not.
+
+FAITH. Do you know him, then?
+
+CHR. Know him? Yes, better than he knows himself.
+
+FAITH. Pray, what is he?
+
+CHR. His name is Talkative: he dwelleth in our town. I wonder that you should be a stranger to him, only I consider that our town is large.
+
+FAITH. Whose son is he? And whereabout doth he dwell?
+
+CHR. He is the son of one Saywell. He dwelt in Prating-Row; and he is known to all that are acquainted with him by the name of Talkative of Prating-Row; and,notwithstanding his fine tongue, he is but a miserable fellow.
+
+FAITH. Well, he seems to be a very nice sort of a man.
+
+CHR. That is to them that have not a thorough acquaintance with him, for he is best abroad; near home he is ugly enough. Your saying that he is a nice man, brings to my mind what I have observed in the work of a painter, whose pictures show best at a distance; but very near, more unpleasing.
+
+FAITH. But I am ready to think you do but jest, because you smiled.
+
+CHR. God forbid that I should jest (though I smiled) in this matter, or that I should accuse any falsely. I will give you a further discovery of him. This man is for any company, and for any talk; as he talketh now with you, so will he talk when he is on the ale-bench; and the more drink he hath in his head, the more of these things he hath in his mouth. Religion hath no place in his heart, or house, or conversation; all he hath lieth in his tongue, and his religion is to make a noise therewith.
+
+FAITH. Say you so? Then am I in this man greatly deceived.
+
+CHR. Deceived! you may be sure of it. Remember the proverb, "They say and do not;" but "the kingdom of God is not in word, but in power." He talketh of prayer, of repentance, of faith, and of the new birth; but he knows but only to talk of them. I have been in his family, and have observed him both at home and abroad; and I know what I say of him is the truth. His house is as empty of religion as the white of an egg is of savor. There is there neither prayer, nor sign of repentance for sin; yea, the brute in his kind serves God far better than he. He is the very stain, reproach, and shame of religion to all that know him; it can hardly have a good word in all that end of the town, where he dwells, through him. Thus say the common people that know him, "A saint abroad, and a devil at home." His poor family finds it so; he is so unreasonable with his servants, that they neither know how to do for or speak to him. Men that have any dealings with him say, "It is better to deal with a Turk than with him, for fairer dealings they shall have at their hands." This Talkative (if it be possible) will go beyond them, defraud, beguile, and overreach them. Besides, he brings up his sons to follow his steps; and if he finds in any of them a foolish timorousness (for so he calls the first appearance of a tender conscience), he calls them fools and blockheads, and by no means will employ them in much, or speak to their commendation before others. For my part, I am of opinion that he has, by his wicked life, caused many to stumble and fall; and will be, if God prevents not, the ruin of many more.
