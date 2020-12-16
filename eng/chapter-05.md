@@ -170,3 +170,27 @@ CHR. Had I known him no more than you, I might, perhaps, have thought of him as 
 FAITH. Well, I see that saying and doing are two things, and hereafter I shall better observe this distinction.
 
 CHR. They are two things, indeed, and are as different as are the soul and the body; for as the body without the soul is but a dead carcass, so saying, if it be alone, is but a dead carcass also. The soul of religion is the practical part. "Pure religion and undefiled before God and the Father is this, To visit the fatherless and widows in their affliction, and to keep himself unspotted from the world." This Talkative is not aware of; he thinks that hearing and saying will make a good Christian; and thus he deceiveth his own soul. Hearing is but as the sowing of the seed; talk is not sufficient to prove that fruit is indeed in the heart and life. And let us assure ourselves, that at the day of doom men shall be judged according to their fruits. It will not be said then, Did you believe? but, Were you doers, or talkers only? and accordingly shall they be judged. The end of the world is compared to our harvest, and you know men at harvest regard nothing but fruit. Not that anything can be accepted that is not of faith; but I speak this to show you how insignificant the profession of Talkative will be at that day.
+
+FAITH. Well, I was not so fond of his company at first, but I am as sick of it now. What shall we do to be rid of him?
+
+CHR. Take my advice, and do as I bid you, and you shall find that he will soon be sick of your company, too, except God shall touch his heart, and turn it.
+
+FAITH. What would you have me do?
+
+CHR. Why, go to him, and enter into some serious discourse about the power of religion; and ask him plainly (when he has approved of it, for that he will), whether this thing be set up in his heart, house, or conversation.
+
+Then Faithful stepped forward again, and said to Talkative, Come, what cheer? How is it now?
+
+TALK. Thank you, well: I thought we should have had a great deal of talk by this time.
+
+FAITH. Well, if you will, we will fall to it now; and since you left it with me to state the question, let it be this.
+
+TALK. I perceive, then, that our talk must be about the power of things. Well, it is a very good question, and I shall be willing to answer you. And take my answer in brief, thus: First, where the grace of God is in the heart, it causeth there a great outcry against sin. Secondly —
+
+FAITH. Nay, hold; let us consider of one at once. I think you should rather say, It shows itself by inclining the soul to abhor its sin.
+
+TALK. Why, what difference is there between crying out against sin, and the abhorring of sin?
+
+FAITH. Oh! a great deal. A man may cry out against sin, of policy; but he can not abhor it but by virtue of a godly antipathy against it. I have heard many cry out against sin in the pulpit, who can yet abide it well enough in the heart, house, and conversation. Some cry out against sin, even as the mother cries out against her child in her lap, when she calleth it naughty girl, and then falls to hugging and kissing it.
+
+Standeth your religion in word or tongue, and not in deed and truth? Pray, if you incline to answer me this, say no more than you know the God above will say Amen to, and also nothing but what your conscience can justify you in; for not he that commendeth himself is approved, but whom the Lord commendeth. Besides, to say I am thus and thus, when my conversation, and all my neighbors, tell me I lie, is great wickedness.
