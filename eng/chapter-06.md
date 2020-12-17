@@ -1,0 +1,3 @@
+# 6 The Sixth Stage
+
+Now when they were got almost quite out of this wilderness, Faithful chanced to cast his eye back, and espied one coming after them, and he knew him. Oh! said Faithful to his brother, who comes yonder? Then Christian looked and said, It is my good friend Evangelist. Aye, and my good friend too, said Faithful, for 'twas he that set me on the way to the gate. Now was Evangelist come up unto them, and thus saluted them.
