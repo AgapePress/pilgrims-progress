@@ -24,3 +24,19 @@ Then I saw in my dream, that when they were got out of the wilderness, they pres
 This fair is no new-erected business, but a thing of ancient standing. I will show you the original of it.
 
 Almost five thousand years ago there were pilgrims walking to the Celestial City, as these two honest persons are: and Beelzebub, Apollyon, and Legion, with their companions, perceiving by the path the pilgrims made, that their way to the city lay through this town of Vanity, they contrived here to set up a fair; a fair wherein should be sold all sorts of vanity, and that it should last all the year long. Therefore, at this fair are all such merchandise sold as houses, lands, trades, places, honors, preferments, titles, countries, kingdoms, lusts, pleasures; and delights of all sorts, as harlots, wives, husbands, children, masters, servants, lives, blood, bodies, souls, silver, gold, pearls, precious stones, and what not.
+
+And moreover, at this fair there is at all times to be seen jugglings, cheats, games, plays, fools, apes, knaves, and rogues, and that of every kind.
+
+Here are to be seen, too, and that for nothing, thefts, murders, adulteries, false-swearers, and that of a blood-red color.
+
+And, as in other fairs of less moment, there are the several rows and streets under their proper names, where such and such wares are sold; so here, likewise, you have the proper places, rows, streets (namely, countries and kingdoms), where the wares of this fair are soonest to be found. Here is the British Row, the French Row, the Italian Row, the Spanish Row, the German Row, where several sorts of vanities are to be sold.
+
+Now, as I said, the way to the Celestial City lies just through this town where this lusty fair is kept; and he that would go to the city, and yet not go through this town, "must needs go out of the world." The Prince of princes himself, when here, went through this town to his own country, and that upon a fair-day, too; yea, and, as I think, it was Beelzebub, the chief lord of this fair, that invited him to buy of his vanities, yea, would have made him lord of the fair, would he but have done him reverence as he went through the town. Yea, because he was such a person of honor, Beelzebub had him from street to street, and showed him all the kingdoms of the world in a little time, that he might, if possible, allure that blessed One to cheapen and buy some of his vanities: but he had no mind to the merchandise, and therefore left the town, without laying out so much as one penny upon these vanities. This fair, therefore, is an ancient thing, of long standing, and a very great fair.
+
+Now, these pilgrims, as I said, must needs go through this fair. Well, so they did; but behold, even as they entered into the fair, all the people in the fair were moved; and the town itself, as it were, in a hubbub about them, and that for several reasons: for,
+
+First, The Pilgrims were clothed with such kind of raiment as was different from the raiment of any that traded in that fair. The people, therefore, of the fair, made a great gazing upon them; some said they were fools; some, they were madmen; and some, they were outlandish men.
+
+Secondly, And as they wondered at their apparel, so they did likewise at their speech; for few could understand what they said. They naturally spoke the language of Canaan; but they that kept the fair were the men of this world: so that from one end of the fair to the other, they seemed barbarians each to the other.
+
+Thirdly, But that which did not a little amuse the merchandisers was, that these pilgrims set very light by all their wares. They cared not so much as to look upon them; and if they called upon them to buy, they would put their fingers in their ears, and cry, "Turn away mine eyes from beholding vanity," and look upward, signifying that their trade or traffic was in heaven.
