@@ -46,3 +46,15 @@ One chanced, mockingly, beholding the behavior of the men, to say unto them, "Wh
 Then were they remanded to the cage again, until further order should be taken with them. So they put them in and made their feet fast.
 
 Here, also, they called again to mind what they had heard from their faithful friend Evangelist, and were the more confirmed in their way and sufferings by what he told them would happen to them. They also now comforted each other, that whose lot it was to suffer, even he should have the best of it; therefore each man secretly wished that he might have that preferment. But committing themselves to the all-wise disposal of Him that ruleth all things, with much content they abode in the condition in which they were, until they should be otherwise disposed of.
+
+Then a convenient time being appointed, they brought them forth to their trial, in order to their condemnation. When the time was come, they were brought before their enemies and arraigned. The judge's name was Lord Hategood; their indictment was one and the same in substance, though somewhat varying in form; the contents whereof was this: "That they were enemies to, and disturbers of, the trade; that they had made commotions and divisions in the town, and had won a party to their own most dangerous opinions, in contempt of the law of their prince."
+
+Then Faithful began to answer, that he had only set himself against that which had set itself against Him that is higher than the highest. And, said he, as for disturbance, I make none, being myself a man of peace: the parties that were won to us, were won by beholding our truth and innocence, and they are only turned from the worse to the better. And as to the king you talk of, since he is Beelzebub, the enemy of our Lord, I defy him and all his angels.
+
+Then proclamation was made, that they that had aught to say for their lord the king against the prisoner at the bar, should forthwith appear, and give in their evidence. So there came in three witnesses, to wit, Envy, Superstition, and Pickthank. They were then asked if they knew the prisoner at the bar; and what they had to say for their lord the king against him. Then stood forth Envy, and said to this effect: My lord, I have known this man a long time, and will attest upon my oath, before this honorable bench, that he is —
+
+JUDGE. Hold; give him his oath.
+
+So they sware him. Then he said, My lord, this man, notwithstanding his plausible name, is one of the vilest men in our country; he neither regardeth prince nor people, law nor custom, but doeth all that he can to possess all men with certain of his disloyal notions, which he in the general calls principles of faith and holiness. And in particular, I heard him once myself affirm, that Christianity and the customs of our town of Vanity, were entirely opposite, and could not be reconciled. By which saying, my lord, he doth at once not only condemn all our laudable doings, but us in the doing of them.
+
+Then did the judge say to him, Hast thou any more to say?
