@@ -58,3 +58,39 @@ JUDGE. Hold; give him his oath.
 So they sware him. Then he said, My lord, this man, notwithstanding his plausible name, is one of the vilest men in our country; he neither regardeth prince nor people, law nor custom, but doeth all that he can to possess all men with certain of his disloyal notions, which he in the general calls principles of faith and holiness. And in particular, I heard him once myself affirm, that Christianity and the customs of our town of Vanity, were entirely opposite, and could not be reconciled. By which saying, my lord, he doth at once not only condemn all our laudable doings, but us in the doing of them.
 
 Then did the judge say to him, Hast thou any more to say?
+
+EENVY. My lord, I could say much more, only I would not be tedious to the court. Yet if need be, when the other gentlemen have given in their evidence, rather than anything shall be wanting that will despatch him, I will enlarge my testimony gainst him. So he was bid to stand by.
+
+Then they called Superstition, and bid him look upon the prisoner. They also asked, what he could say for their lord the king against him. Then they sware him; so he began.
+
+SUPER. My lord, I have no great acquaintance with this man, nor do I desire to have further knowledge of him. However, this I know, that he is a very pestilent fellow, from some discourse that I had with him the other day, in this town; for then, talking with him, I heard him say that our religion was naught, and such by which a man could by no means please God. Which saying of his, my lord, your lordship very well knows what necessarily thence will follow, to wit, that we still do worship in vain, are yet in our sins, and finally shall be damned: and this is that which I have to say.
+
+Then was Pickthank sworn, and bid say what he knew in the behalf of their lord the king against the prisoner at the bar.
+
+PICK. My lord, and you gentlemen all, this fellow I have known a long time, and have heard him speak things that ought not to be spoken; for he hath railed at our noble prince Beelzebub, and hath spoken contemptibly of his honorable friends, whose names are, the Lord Oldman, the Lord Carnal Delight, the Lord Luxurious, the Lord Desire of Vain Glory, Sir Having Greedy, with all the rest of our nobility: and he hath said, moreover, that if all men were of his mind, it possible, there is not one of these noblemen should have any longer a being in this town. Besides, he hath not been afraid to rail at you, my lord, who are now appointed to be his judge, calling you an ungodly villain, with many other such like vilifying terms, with which he hath bespattered most of the gentry of our town.
+
+When this Pickthank had told his tale, the judge directed his speech to the prisoner at the bar, saying, Thou renegade, heretic, and traitor, hast thou heard what these honest gentlemen have witnessed against thee?
+
+FAITH. May I speak a few words in my own defence?
+
+JUDGE. Fellow, thou deservest to live no longer, but to be slain immediately upon the place; yet, that all men may see our gentleness toward thee, let us hear what thou, vile wretch, hast to say.
+
+Faith. 1 I say, then, in answer to what Mr. Envy hath spoken, I never said aught but this, that what rule, or laws, or custom, or people, were flat against the word of God, are wholly opposite to Christianity. If I have said amiss in this, convince me of my error, and I am ready here before you to make my recantation.
+
+2 As to the second, to wit, Mr. Superstition, and his charge against me, I said only this, that in the worship of God there is required a divine faith; but there can be no divine faith without a divine revelation of the will of God. Therefore, whatever is thrust into the worship of God that is not agreeable to divine revelation, cannot be done but by a human faith; which faith will not be profitable to eternal life.
+
+3 As to what Mr. Pickthank hath said, I say (avoiding terms, as that I am said to rail, and the like), that the prince of this town, with all the rabble, his attendants, by this gentleman named, are more fit for being in hell than in this town and country. And so the Lord have mercy upon me.
+
+Then the judge called to the jury (who all this while stood by to hear and observe), Gentlemen of the jury, you see this man about whom so great an uproar hath been made in this town; you have also heard what these worthy gentlemen have witnessed against him; also, you have heard his reply and confession: it lieth now in your breasts to hang him, or to save his life; but yet I think meet to instruct you in our law.
+
+There was an act made in the days of Pharaoh the Great, servant to our prince, that, lest those of a contrary religion should multiply and grow too strong for him, their males should be thrown into the river. There was also an act made in the days of Nebuchadnezzar the Great, another of his servants, that whoever would not fall down and worship his golden image, should be thrown into a fiery furnace. There was also an act made in the days of Darius, that whoso for some time called upon any god but him, should be cast into the lion's den. Now, the substance of these laws this rebel hath broken, not only in thought (which is not to be borne), but also in word and deed; which must, therefore, needs be intolerable.
+
+For that of Pharaoh, his law was made upon a supposition to prevent mischief, no crime being yet apparent; but here is a crime apparent. For the second and third, you see he disputeth against our religion; and for the treason that he hath already confessed, he deserveth to die the death.
+
+Then went the jury out, whose names were Mr. Blindman, Mr. Nogood, Mr. Malice, Mr. Lovelust, Mr. Liveloose, Mr. Heady, Mr. Highmind, Mr. Enmity, Mr. Liar, Mr. Cruelty, Mr. Hatelight, and Mr. Implacable; who every one gave in his private verdict against him among themselves, and afterwards unanimously concluded to bring him in guilty before the judge. And first among themselves, Mr. Blindman, the foreman, said, I see clearly that this man is a heretic. Then said Mr. Nogood, Away with such a fellow from the earth. Aye, said Mr. Malice, for I hate the very looks of him. Then said Mr. Lovelust, I could never endure him. Nor I, said Mr. Liveloose, for he would always be condemning my way. Hang him, hang him, said Mr. Heady. A wretched scrub, said Mr. Highmind. My heart riseth against him, said Mr. Enmity. He is a rogue, said Mr. Liar. Hanging him is too good for him, said Mr. Cruelty. Let us dispatch him out of the way, said Mr. Hatelight. Then said Mr. Implacable, Might I have all the world given me, I could not be reconciled to him; therefore let us forthwith bring him in guilty of death.
+
+And so they did; therefore he was presently condemned to be had from the place where he was to the place from whence he came, and there to be put to the most cruel death that could be invented.
+
+They therefore brought him out, to do with him according to their law; and first they scourged him, then they buffeted him, then they lanced his flesh with knives; after that, they stoned him with stones, then pricked him with their swords; and last of all, they burned him to ashes at the stake. Thus came Faithful to his end.
+
+Now I saw, that there stood behind the multitude a chariot and a couple of horses waiting for Faithful, who (so soon as his adversaries had dispatched him) was taken up into it, and straightway was carried up through the clouds with sound of trumpet, the nearest way to the celestial gate. But as for Christian, he had some respite, and was remanded to prison: so he remained there for a space. But He who overrules all things, having the power of their rage in His own hand, so wrought it about, that Christian for that time escaped them, and went his way.
