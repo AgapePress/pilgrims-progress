@@ -44,7 +44,7 @@ CHR. Not a step farther, unless you will do, in what I propose, as we.
 
 Then said Byends, I shall never desert my old principles, since they are harmless and profitable. If I may not go with you, I must do as I did before you overtook me, even go by myself, until some overtake me that will be glad of my company.
 
-Now, I saw in my dream, that Christian and Hopeful forsook him, and kept their distance before him; but one of them, looking back, saw three men following Mr.Byends; and, behold, as they came up with him, he made them a very low bow; and they also gave him a compliment. The men's names were, Mr. Holdtheworld, Mr. Moneylove, and Mr. Saveall, men that Mr. Byends had formerly been acquainted with; for when children they were schoolfellows, and were taught by one Mr. Gripeman, a schoolmaster in Lovegain, which is a market-town in the county of Coveting, in 
+Now, I saw in my dream, that Christian and Hopeful forsook him, and kept their distance before him; but one of them, looking back, saw three men following Mr. Byends; and, behold, as they came up with him, he made them a very low bow; and they also gave him a compliment. The men's names were, Mr. Holdtheworld, Mr. Moneylove, and Mr. Saveall, men that Mr. Byends had formerly been acquainted with; for when children they were schoolfellows, and were taught by one Mr. Gripeman, a schoolmaster in Lovegain, which is a market-town in the county of Coveting, in 
 the North. The schoolmaster taught them the art of getting, either by violence, cheating, flattering, lying, or by putting on a guise of religion; and these four gentlemen had attained much of the art of their master, so that they could each of them have kept such a school themselves.
 
 Well, when they had, as I said, thus saluted each other, Mr. Moneylove said to Mr. Byends, Who are they upon the road before us? For Christian and Hopeful were yet within view.
@@ -54,3 +54,27 @@ BY. They are a couple of fellow-countrymen, that, after their mode, are going on
 MONEY. Alas! why did they not stay, that we might have had their good company? for they, and we, and you, sir, I hope, are all going on pilgrimage.
 
 BY. We are so, indeed; but the men before us are so rigid, and love so much their own notions, and do also so lightly esteem the opinions of others, that let a man be never so godly, yet if he agrees not with them in all things, they thrust him quite out of their company.
+
+SAVE. That is bad; but we read of some that are righteous over much, and such men's rigidness prevails with them to judge and condemn all but themselves. But I pray, what, and how many, were the things wherein you differed?
+
+BY. Why, they, after their headstrong manner, conclude that it is their duty to rush on their journey all weathers; and I am for waiting for wind and tide. They are for hazarding all for God at a clap; and I am for taking all advantages to secure my life and estate. They are for holding their notions, though all other men be against them; but I am for religion in what and so far as the times and my safety will bear it. They are for Religion when in rags and contempt; but I am for him when he walks in his silver slippers, in the sunshine, and with applause.
+
+HOLDTHEWORLD. Aye, and hold you there still, good Mr. Byends; for, for my part, I can count him but a fool, that, having the liberty to keep what he has, shall be so unwise as to lose it. Let us be wise as serpents. It is best to make hay while the sun shines. You see how the bee lieth still all winter, and bestirs her only when she can have profit with pleasure. God sends sometimes rain, and sometimes sunshine: if they be such fools to go through the first, yet let us be content to take fair weather along with us. For my part, I like that religion best that will stand with the security of God's good blessings unto us; for who can imagine, that is ruled by his reason, since God has bestowed upon us the good things of this life, but that he would have us keep them for his sake? Abraham and Solomon grew rich in religion; and Job says, that a good man shall lay up gold as dust; but he must not be such as the men before us, if they be as you have described them.
+
+SAVE. I think that we are all agreed in this matter: and therefore there needs no more words about it.
+
+MONEY. No, there needs no more words about this matter, indeed; for he that believes neither Scripture nor reason (and you see we have both on our side), neither knows his own liberty nor seeks his own safety.
+
+Then Christian and Hopeful outwent them again, and went till they came to a delicate plain called Ease, where they went with much content; but that plain was but narrow, so they were quickly got over it. Now at the farther side of that plain was a little hill, called Lucre, and in that hill a silver-mine, which some of them that had formerly gone that way, because of the rarity of it, had turned aside to see; but going too near the brim of the pit, the ground, being deceitful under them, broke, and they were slain: some also had been maimed there, and could not, to their dying day, be their own men again.
+
+Then I saw in my dream, that a little off the road, over against the silver-mine, stood Demas (gentleman-like) to call passengers to come and see; who said to Christian and his fellow, Ho! turn aside hither, and I will show you a thing.
+
+CHR. What thing so deserving as to turn us out of the way to see it?
+
+DEMAS. Here is a silver-mine, and some digging in it for treasure: if you will come, with a little pains you may richly provide for yourselves.
+
+HOPE. Then said Hopeful, Let us go see.
+
+CHR. Not I, said Christian: I have heard of this place before now, and how many have there been slain; and besides, that treasure is a snare to those that seek it, for it hindereth them in their pilgrimage.
+
+Then Christian called to Demas, saying, Is not the place dangerous? Hath it not hindered many in their pilgrimage?
