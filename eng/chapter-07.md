@@ -78,3 +78,32 @@ HOPE. Then said Hopeful, Let us go see.
 CHR. Not I, said Christian: I have heard of this place before now, and how many have there been slain; and besides, that treasure is a snare to those that seek it, for it hindereth them in their pilgrimage.
 
 Then Christian called to Demas, saying, Is not the place dangerous? Hath it not hindered many in their pilgrimage?
+
+DEMAS. Not very dangerous, except to those that are careless; but withal he blushed as he spake.
+
+CHR. Then said Christian to Hopeful, Let us not stir a step, but still keep on our way.
+
+HOPE. I will warrant you, when Byends comes up, if he hath the same invitation as we, he will turn in thither to see.
+
+CHR. No doubt thereof, for his principles lead him that way, and a hundred to one but he dies there.
+
+DEMAS. Then Demas called again, saying, But will you not come over and see?
+
+CHR. Then Christian roundly answered, saying, Demas, thou art an enemy to the right ways of the Lord of this way, and hast been already condemned for thine own turning aside, by one of his Majesty's judges; and why seekest thou to bring us into the like condemnation? Besides, if we at all turn aside, our Lord the King will certainly hear thereof, and will there put us to shame, where we would stand with boldness before him.
+
+Demas cried again, that he also was one of their fraternity; and that if they would tarry a little, he also himself would walk with them.
+
+CHR. Then said Christian, What is thy name? Is it not the same by which I have called thee?
+
+DEMAS. Yes, my name is Demas; I am the son of Abraham.
+
+CHR. I know you: Gehazi was your great-grandfather, and Judas your father, and you have trod in their steps; it is but a devilish prank that thou usest, thy father was hanged for a traitor, and thou deservest no better reward. Assure thyself, that when we come to the King, we will tell him of this thy behavior. Thus they went their way.
+
+By this time Byends and his companions were come again within sight, and they at the first beck went over to Demas. Now, whether they fell into the pit by looking over the brink thereof, or whether they went down to dig, or whether they were smothered in the bottom by the damps that commonly arise, of these things I am not certain; but this I observed, that they were never seen again in the way. Then sang Christian,
+
+"Byends and Silver-Demas both agree;<br>
+One calls, the other runs, that he may be<br>
+A sharer in his lucre ; so these two<br>
+Take up in this world, and no farther go."<br>
+
+Now I saw that, just on the other side of this plain, the pilgrims came to a place where stood an old monument, hard by the highway-side, at the sight of which they were both concerned, because of the strangeness of the form thereof; for it seemed to them as if it had been a woman transformed into the shape of a pillar. Here, therefore, they stood looking and looking upon it, but could not for a time tell what they should make thereof. At last Hopeful espied, written above upon the head thereof, a writing in an unusual hand; but he being no scholar, called to Christian (for he was learned) to see if he could pick out the meaning: so he came, and after a little laying of the letters together, he found the same to be this, "Remember Lot's wife." So he read it to his fellow; after which they both concluded that that was the pillar of salt into which Lot's wife was turned, for her looking back with a covetous heart when she was going from Sodom for safety. Which sudden and amazing sight gave them occasion for this discourse.
