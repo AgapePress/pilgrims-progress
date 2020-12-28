@@ -103,7 +103,22 @@ By this time Byends and his companions were come again within sight, and they at
 
 "Byends and Silver-Demas both agree;<br>
 One calls, the other runs, that he may be<br>
-A sharer in his lucre ; so these two<br>
+A sharer in his lucre; so these two<br>
 Take up in this world, and no farther go."<br>
 
 Now I saw that, just on the other side of this plain, the pilgrims came to a place where stood an old monument, hard by the highway-side, at the sight of which they were both concerned, because of the strangeness of the form thereof; for it seemed to them as if it had been a woman transformed into the shape of a pillar. Here, therefore, they stood looking and looking upon it, but could not for a time tell what they should make thereof. At last Hopeful espied, written above upon the head thereof, a writing in an unusual hand; but he being no scholar, called to Christian (for he was learned) to see if he could pick out the meaning: so he came, and after a little laying of the letters together, he found the same to be this, "Remember Lot's wife." So he read it to his fellow; after which they both concluded that that was the pillar of salt into which Lot's wife was turned, for her looking back with a covetous heart when she was going from Sodom for safety. Which sudden and amazing sight gave them occasion for this discourse.
+
+CHR. Ah, my brother, this is a seasonable sight: it came opportunely to us after the invitation which Demas gave us to come over to view the hill Lucre; and had we gone over, as he desired us, and as thou wast inclined to do, my brother, we had, for aught I know, been made, like this woman, a spectacle for those that shall come after to behold.
+
+HOPE. I am sorry that I was so foolish, and am made to wonder that I am not now as Lot's wife; for wherein was the difference betwixt her sin and mine? She only looked back, and I had a desire to go see. Let grace be adored; and let me be ashamed that ever such a thing should be in mine heart.
+
+I saw then that they went on their way to a pleasant river, which David the king called "the river of God;" but John, "the river of the water of life." Now their 
+way lay just upon the bank of this river: here, therefore, Christian and his companion walked with great delight; they drank also of the water of the river, which was pleasant and enlivening to their weary spirits. Besides, on the banks of this river, on either side, were green trees with all manner of fruit; and the leaves they ate to prevent diseases that are incident to those that heat their blood by travel. On either side of the river was also a meadow, curiously beautified with lilies; and it was green all the year long. In this meadow they lay down and slept, for here they might lie down safely. When they awoke they gathered again of the fruits of the trees, and drank again of the water of the river, and then lay down again to sleep. Thus they did several days and nights.
+
+So when they were disposed to go on (for they were not as yet at their journey's end), they ate, and drank, and departed.
+
+Now I beheld in my dream, that they had not journeyed far, but the river and the way for a time parted, at which they were not a little sorry; yet they durst not go out of the way. Now the way from the river was rough, and their feet tender by reason of their travels; so the souls of the pilgrims were much discouraged because of the way. Wherefore, still as they went on, they wished for a better way. Now, a little before them, there was on the left hand of the road a meadow, and a stile to go over into it, and that meadow is called the By-path meadow. Then said Christian to his fellow, If this meadow lieth along by our wayside, let's go over into it. Then he went to the stile to see; and behold, a path lay along by the way on the other side of the fence. It is according to my wish, said Christian; here is the easiest going; come, good Hopeful, and let us go over.
+
+HOPE. But how if this path should lead us out of the way?
+
+That is not likely, said the other. Look, doth it not go along by the wayside? So Hopeful, being persuaded by his fellow, went after him over the stile. When they were gone over, and were got into the path, they found it very easy for their feet; and withal, they, looking before them, espied a man walking as they did, and his name was Vain-Confidence: so they called after him, and asked him whither that way led. He said, To the Celestial Gate. Look, said Christian, did I not tell you so? By this you may see we are right. So they followed, and he went before them. But behold, the night came on, and it grew very dark; so they that were behind lost sight of him that went before.
