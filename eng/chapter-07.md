@@ -122,3 +122,27 @@ Now I beheld in my dream, that they had not journeyed far, but the river and the
 HOPE. But how if this path should lead us out of the way?
 
 That is not likely, said the other. Look, doth it not go along by the wayside? So Hopeful, being persuaded by his fellow, went after him over the stile. When they were gone over, and were got into the path, they found it very easy for their feet; and withal, they, looking before them, espied a man walking as they did, and his name was Vain-Confidence: so they called after him, and asked him whither that way led. He said, To the Celestial Gate. Look, said Christian, did I not tell you so? By this you may see we are right. So they followed, and he went before them. But behold, the night came on, and it grew very dark; so they that were behind lost sight of him that went before.
+
+He, therefore, that went before (Vain-Confidence by name), not seeing the way before him, fell into a deep pit, which was on purpose there made, by the prince of those grounds, to catch vain-glorious fools withal, and was dashed in pieces with his fall.
+
+Now, Christian and his fellow heard him fall. So they called to know the matter, but there was none to answer, only they heard a groaning. Then said Hopeful, Where are we now? Then was his fellow silent, as mistrusting that he had led him out of the way; and now it began to rain, and thunder, and lighten, in a most dreadful manner, and the water rose rapidly.
+
+Then Hopeful groaned in himself, saying, Oh, that I had kept on my way!
+
+CHR. Who could have thought that this path should have led us out of the way?
+
+HOPE. I was afraid on't at the very first, and therefore gave you that gentle caution. I would have spoken plainer, but that you are older than I.
+
+CHR. Good brother, be not offended: I am sorry I have brought thee out of the way, and that I have put thee into such imminent danger. Pray, my brother, forgive me; I did not do it of an evil intent.
+
+HOPE. Be comforted, my brother, for I forgive thee; and believe, too, that this shall be for our good.
+
+CHR. I am glad I have with me a merciful brother: but we must not stand here; let us try to go back again.
+
+HOPE. But, good brother, let me go before.
+
+CHR. No, if you please, let me go first, that if there be any danger, I may be first therein, because by my means we are both gone out of the way.
+
+HOPE. No, said Hopeful, you shall not go first, for your mind being troubled may lead you out of the way again. Then for their encouragement they heard the voice of one saying, "Let thine heart be toward the highway, even the way that thou wentest: turn again." But by this time the waters were greatly risen, by which the way of going back was very dangerous. (Then I thought that it is easier going out of the way when we are in, than going in when we are out.) Yet they adventured to go back; but it was so dark, and the flood was so high, that in their going back they had like to have been drowned nine or ten times.
+
+Neither could they, with all the skill they had, get again to the stile that night. Wherefore at last, lighting under a little shelter, they sat down there till the day brake; but, being weary, they fell asleep. Now there was not far from the place where they lay, a castle, called Doubting Castle, the owner whereof was Giant Despair, and it was in his grounds they now were sleeping; wherefore he, getting up in the morning early, and walking up and down in his fields, caught Christian and Hopeful asleep in his grounds. Then with a grim and surly voice he bid them awake, and asked them whence they were, and what they did in his grounds. They told him they were pilgrims, and that they had lost their way. Then said the giant, You have this night trespassed on me by trampling in and lying on my grounds, and therefore you must go along with me. So they were forced to go, because he was stronger than they. They had also but little to say, for they knew themselves in a fault. The giant, therefore, drove them before him, and put them into his castle, into a very dark dungeon, filthy and evil-smelling to the spirits of these two men. Here, then, they lay from Wednesday morning till Saturday night, without one bit of bread or drop of drink, or light, or any to ask how they did; they were, therefore, here in evil case. and were far from friends and acquaintance. Now, in this place, Christian had double sorrow, because it was through his unadvised counsel that they were brought into this distress.
