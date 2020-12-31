@@ -1,0 +1,3 @@
+# 8 The Eighth Stage
+
+They went then till they came to the Delectable Mountains, which mountains belong to the Lord of that hill of which we have spoken before. So they went up to the mountains, to behold the gardens and orchards, the vineyards and fountains of water; where also they drank and washed themselves, and did freely eat of the vineyards. Now, there were on the tops of these mountains shepherds feeding their flocks, and they stood by the highway-side. The pilgrims, therefore, went to them, and leaning upon their staffs (as is common with weary pilgrims when they stand to talk with any by the way), they asked, Whose Delectable Mountains are these; and whose be the sheep that feed upon them?
