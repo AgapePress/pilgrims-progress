@@ -1,0 +1,3 @@
+# 9 The Ninth Stage
+
+And I slept and dreamed again, and saw the same two pilgrims going down the mountains along the highway towards the city. Now, a little below these mountains, on the left hand, lieth the country of Conceit, from which country there comes into the way in which the pilgrims walked a little crooked lane. Here, therefore, they met with a very brisk lad that came out of that country, and his name was Ignorance. So Christian asked him from what parts he came, and whither he was going.
