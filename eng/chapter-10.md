@@ -1,6 +1,6 @@
 # 10 The Tenth Stage
 
-Then Christian addressed himself thus to his fellow:—
+Then Christian addressed himself thus to his fellow: —
 
 CHR. Well, come, my good Hopeful, I perceive that thou and I must walk by ourselves again.
 
